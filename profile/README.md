@@ -5,7 +5,7 @@ En este artículo, te explicaremos todo lo que necesitas saber sobre Minecraft 1
 
 ![Ảnh chụp màn hình 2024-11-01 105005](https://github.com/user-attachments/assets/54084b4e-ef84-42ec-a14e-8cdf79a64d46)
 
-## 🌈🍿Descargar: [Minecraft 1.21.44 APK](https://modilimitado.io/pt/minecraft-apk)
+## 🌈🍿Descargar: [Minecraft 1.21.44 APK](https://minecraft-apk.modilimitado.io)
 
 ### Novedades de Minecraft 1.21.44 APK
 La versión 1.21.44 incluye una serie de mejoras y adiciones que han entusiasmado a la comunidad:
